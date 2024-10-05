@@ -3,8 +3,7 @@
                                                                 fizz!
 
                                                             be nice to me.
-
-im only in 2 fandoms kill me
+                                                    im only in 2 fandoms kill me
 
 ![image_2024-10-05_124329850](https://github.com/user-attachments/assets/ebd337f7-8e93-4f61-8fea-cc826fb778d6)
 

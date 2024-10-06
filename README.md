@@ -6,10 +6,13 @@
 
 ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶  ︶꒦꒷︶ ︶꒦꒷︶ 
 
-:6White_Heart: favorite color - beige
+ favorite color - beige
+
   ✩  favorite food - penne al forno
-  :6White_Heart: favorite games - identity v, roblox
-    ✩  favorite hobbies - drawing
+
+ favorite games - identity v, roblox
+
+   ✩  favorite hobbies - drawing
 
 ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ 
 

@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/a7c882f6-fafc-401e-b6bc-4996ad311714)
+![image_2024-10-06_163814025](https://github.com/user-attachments/assets/864ecb81-8bc2-4ff5-ab5b-175f0a96bc76)
+
 
 ꔫ fizzly ꔫ
 
@@ -23,4 +24,5 @@
 
 art by bigballschuuya on dc
 
-![image](https://github.com/user-attachments/assets/2c4fa772-c80a-4266-a4dc-4a7be70dbda5)
+![image_2024-10-06_163814025](https://github.com/user-attachments/assets/864ecb81-8bc2-4ff5-ab5b-175f0a96bc76)
+
